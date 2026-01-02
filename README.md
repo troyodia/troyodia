@@ -1,6 +1,6 @@
 ## Some information about me
 - 🤓 Mechatronics Engineering student at Ontario Tech University.
-- ✉️ You can contact me at [troy.odia@ontariotechu.net](mailto:troy.odia@ontariotechu.net)
+- ✉️ You can contact me at [troy.o.odia@gmail.com](mailto:troy.o.odia@gmail.com)
 
 
 ## Please reach out anytime 
